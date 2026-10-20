@@ -1,0 +1,1 @@
+# yapayzekadestekliyazilimgelistirme-blog
