@@ -1,1 +1,1 @@
-# yapayzekadestekliyazilimgelistirme-blog
+# yapayzekadestekliyazilimgelistirme-blo
